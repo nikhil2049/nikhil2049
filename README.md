@@ -4,6 +4,7 @@
 - 📫 How to reach me krishanikhil09@gmail.com
 - 📚 Studying at Bits Pilani.
 - 🎮🎞️ Contact for any Video Editing Projects and Gaming.
+- 🎫 Please subscribe to my channel for Gaming updates of me and my editing career.
 
 <!---
 nikhil2049/nikhil2049 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
